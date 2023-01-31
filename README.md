@@ -1,1 +1,0 @@
-# Wearables-E-Commerce-Project
